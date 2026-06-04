@@ -1,4 +1,4 @@
-#  
+#  steal a brainrot Script exclusive offers the most advanced steal a brainrot Script, with undetectable and fly. Perfect for dominating any match.
 
 
 
